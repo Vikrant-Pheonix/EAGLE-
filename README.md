@@ -1,4 +1,5 @@
-# EAGLE-# Hi there 👋 I'm Vikrant-Pheonix
+# EAGLE
+# Hi there 👋 I'm Vikrant-Pheonix
 
 🎓 **Student** with a passion for discovery and learning  
 🔬 **Interested in:**  
